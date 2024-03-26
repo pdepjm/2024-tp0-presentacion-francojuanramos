@@ -6,8 +6,11 @@ Acá les comparto una foto mía, la cual no tengo muchas y menos estando solo.
 ---
 Algunas cosas que me gustan son:
 - Programar
-- Jugar al Hand Ball
-- Hacer video de YT  [(click acá para ir al canal aunque subo solo juego 😅)](https://www.youtube.com/@minefranco588/videos)
+- Jugar al Hand Ball y al futbol o verlos o grabarlos
+- Hacer video de YT
+
+Dejo acá mi instagram como escusa para poner un link:
+[instagram](https://www.instagram.com/franco_ramos1/)
 
 Bueno eso es todo bye.
 (Posdata no traduzcan la página porque da errores, no vemos)
