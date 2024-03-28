@@ -9,6 +9,9 @@ Algunas cosas que me gustan son:
 - Jugar al Hand Ball y al futbol o verlos o grabarlos
 - Hacer video de YT
 
+  Otra cosa también es que fui al colegio Schiller Schule, el cual es un colegio alemán en Villa del Parque.  
+  A pesar de que fui a este colegio mi fuerte nunca fueron los idiomas, asi que tanto mi alemán como mi ingles son bastantes flojos.
+
 Dejo acá mi instagram como escusa para poner un link:
 [instagram](https://www.instagram.com/franco_ramos1/)
 
