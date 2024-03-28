@@ -7,7 +7,7 @@ Acá les comparto una foto mía, la cual no tengo muchas y menos estando solo.
 Algunas cosas que me gustan son:
 - Programar
 - Jugar al Hand Ball y al futbol o verlos o grabarlos
-- Hacer video de YT
+- Hacer video de YT [(click acá para ir al canal aunque subo solo juego 😅)](https://www.youtube.com/@minefranco588/videos)
 
   Otra cosa también es que fui al colegio Schiller Schule, el cual es un colegio alemán en Villa del Parque.  
   A pesar de que fui a este colegio mi fuerte nunca fueron los idiomas, asi que tanto mi alemán como mi ingles son bastantes flojos.
